@@ -1,0 +1,2 @@
+# -sembarang
+Sembarang kuwi terserah
